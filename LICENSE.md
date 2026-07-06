@@ -1,4 +1,4 @@
-# 
+# آلي Avast Premium Security وظائف إضافية لـ Mac OS | خفيف Avast Premium Security وظائف إضافية لـ PC Windows. مع تتبع الموقع الجغرافي و مسح المنافذ — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
